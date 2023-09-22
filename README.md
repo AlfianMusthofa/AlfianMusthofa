@@ -1,4 +1,4 @@
-Yo 🤙 
+Seorang orang 🤙 
 
 <p align="left">
 <a href="https://github.com/gilangadhan">
