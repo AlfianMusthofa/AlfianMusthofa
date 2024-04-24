@@ -1,4 +1,4 @@
-Seorang orang yang mencari peruntungan di dunia programming.
+Seorang orang yang mencari ilmu di dunia programming.
 
 <p align="left">
 <a href="https://github.com/gilangadhan">
