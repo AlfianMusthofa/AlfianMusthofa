@@ -1,4 +1,4 @@
-Seorang orang yang mencari ilmu di dunia programming.
+Seorang orang🤙
 
 <p align="left">
 <a href="https://github.com/gilangadhan">
